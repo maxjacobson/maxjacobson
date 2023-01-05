@@ -1,3 +1,3 @@
-Hi. Feel free to read [my blog](https://www.hardscrabble.net/).
+Hi. Have a good day.
 
-have a good day.
+Feel free to read [my blog](https://www.hardscrabble.net/).
