@@ -1,3 +1,1 @@
-Hi. Have a good day.
-
-Feel free to read [my blog](https://www.hardscrabble.net/).
+Close this tab and listen to "The King Beetle on a Coconut Estate"
